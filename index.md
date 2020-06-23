@@ -1,1 +1,2 @@
 # Pippi Langstrumpf
+Pippi Langstrumpf (mit vollem Namen Pippilotta Viktualia Rollgardina Pfefferminz Efraimstochter Langstrumpf) ist die zentrale Figur einer dreibändigen schwedischen Kinderbuch-Reihe von Astrid Lindgren und verschiedener darauf basierender Bearbeitungen
