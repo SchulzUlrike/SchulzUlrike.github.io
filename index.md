@@ -10,5 +10,3 @@ Pippi Langstrumpf (mit vollem Namen Pippilotta Viktualia Rollgardina Pfefferminz
 
 > Glaubst du vielleicht,
 > Herr Nilsson ist ein Fräulein?
-
-<img src="https://www.br.de/kinder/pippi-langstrumpf-beim-spaghetti-essen-dpa-100~_v-img__16__9__xl_-d31c35f8186ebeb80b0cd843a7c267a0e0c81647.jpg?version=e8b52"/> 
