@@ -5,5 +5,8 @@ Pippi Langstrumpf (mit vollem Namen Pippilotta Viktualia Rollgardina Pfefferminz
 * stark
 * rote Haare
 * 2 geflochtene Zöpfe
-* piratentochter
+* Piratentochter
 * hat ein Pferd und einen Affen
+
+> Glaubst du vielleicht,
+> Herr Nilsson ist ein Fräulein?
